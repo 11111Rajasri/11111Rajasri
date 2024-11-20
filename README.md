@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Rajasri R
-- 👀 I’m Digital marketer
+- 👀 I’m a Digital marketer
 - 🌱 I’m currently Searhing job related to digital marketing
 
 
