@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Rajasri R
 - 👀 I’m a Digital marketer
-- 🌱 I’m currently Searhing job related to digital marketing
+- 🌱 I’m currently Searching job related to digital marketing
 
 
 <!---
